@@ -1,2 +1,2 @@
 # hello-world
-budak nak belajar
+budak mahu(cek deleted)  belajar
